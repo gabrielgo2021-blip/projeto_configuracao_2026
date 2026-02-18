@@ -1,0 +1,1 @@
+# projeto_configuracao_2026
